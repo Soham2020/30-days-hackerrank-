@@ -1,1 +1,0 @@
-# sohamcovid.github.io
